@@ -1,0 +1,1 @@
+**leia antes de começar o projeto
